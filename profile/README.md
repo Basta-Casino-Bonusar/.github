@@ -2,7 +2,6 @@
 <html lang="sv">
 <head>
   <meta charset="UTF-8">
-  <title>Casino med snabba uttag & bonus utan omsättningskrav 2025</title>
   <meta name="description" content="Upptäck svenska casinon med snabba uttag och bonusar utan omsättningskrav 2025. Spela tryggt och jämför erbjudanden på Casinoguden.se.">
 </head>
 <body>
